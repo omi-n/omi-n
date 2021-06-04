@@ -1,3 +1,1 @@
-# Fun Fact: 
-## Did you know that Bing exists?
-##### I didn't
+Want to hear a joke about construction? I'm still working on it.
